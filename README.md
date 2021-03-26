@@ -1,8 +1,5 @@
-### Hi there 👋🔭🔭🔭🔭🔭🔭🔭🔭
-real good coder
-pls hire
-will mak money big time for ur compani
-no scam thx
+### hello internet 👋🔭🔭🔭🔭🔭🔭🔭🔭
+
 (Chicha online is probably my best repo) 
 
 <!--
